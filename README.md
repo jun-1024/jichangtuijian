@@ -35,7 +35,7 @@
 
 ## 二、魔戒机场
 
-最新地址:[mojie.co](https://mojie.host/register?aff=1VlZXWVA)
+最新地址:[mojie.host](https://mojie.host/register?aff=1VlZXWVA)
 
 > 魔戒机场成立于2020年。按流量计费，流量不会重置，没有过期时间。
 > 好比别的机场是月卡，魔戒机场是点卡。
