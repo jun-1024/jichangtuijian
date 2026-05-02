@@ -148,7 +148,7 @@
 
 ## 五、牛逼机场
 
-最新地址：[66.66jc.top](https://6.66jc.top/#/login?code=1KWW7UxL)
+最新地址：[66.66jc.top](https://66.66jc.top/#/login?code=1KWW7UxL)
 > 日常优惠券：牛逼机场666
 
 ⚡️全中转线路
@@ -185,7 +185,7 @@
   年付￥23.9  200G/月
   ```
 
-[点击访问牛逼机场](https://6.66jc.top/#/login?code=1KWW7UxL)
+[点击访问牛逼机场](https://66.66jc.top/#/login?code=1KWW7UxL)
 
 ## 六、超级跑车
 
