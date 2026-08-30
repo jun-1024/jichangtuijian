@@ -8,7 +8,7 @@
 
 最新地址：
 
-[八戒机场官网](https://bajie.la/register?aff=OpjHo2xr)
+[八戒机场官网](https://43.129.78.33:2333/register?aff=OpjHo2xr)
 
 [八戒官网备用地址](http://bajie.pro/register?aff=A6pAEaJq)
 
@@ -35,7 +35,7 @@
 | ---- | ------ | ------- | ------- | ------- | -------- |
 | 价格 | ￥12.9  | ￥25.9  | ￥38.9    | ￥51.9  | ￥103.9   |
 
-[点击访问八戒机场](https://bajie.la/register?aff=OpjHo2xr)
+[点击访问八戒机场](https://43.129.78.33:2333/register?aff=OpjHo2xr)
 
 ## 二、魔戒机场
 
@@ -73,7 +73,7 @@
 
 最新地址:
 
-[flybit官网](https://1.flybit.network/#/register?code=IEXOJC66)
+[flybit官网](https://www.fastfastfast.buzz/#/register?code=IEXOJC66)
 
 [flybit官网备用地址](https://goflybit.com/#/register?code=IEXOJC66)
 
